@@ -64,5 +64,5 @@
 点击下方链接完成入驻，即刻体验企业级高效发卡与高通过率海外卡段：
 
 🚀 **[点击注册并进入 CoreGold 虚拟卡管理系统](https://app.coregold.io/signup?invite_code=ADvlj9b)**
-<img width="1983" height="793" alt="690db130b0815ce097a3bd51624a59a7" src="https://github.com/user-attachments/assets/269a4a8c-40dc-4904-bdcb-28934d047c08" />
+<img width="1983" height="793" alt="690db130b0815ce097a3bd51624a59a7" src="https://github.com/user-attachments/assets/269a4a8c-40dc-4904-bdcb-28934d047c08" /> 
 
